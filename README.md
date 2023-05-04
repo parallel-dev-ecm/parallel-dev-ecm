@@ -1,1 +1,1 @@
-👋 Hello there, welcome to @parallel-dev-ecm. Take a look 👀
+Software Engineer. 23 years old.
